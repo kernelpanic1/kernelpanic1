@@ -1,5 +1,6 @@
 - Hi, We're @kernelpanic1
 - We develop wix web sites for clients
+- Trust us to develop the website of all your business / personal needs
 - Reach out to us via email : kernelpanic.idm@gmail.com 
 
 <!---
